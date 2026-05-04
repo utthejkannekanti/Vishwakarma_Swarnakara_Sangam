@@ -1,2 +1,1 @@
-# Vishwakarma_Swarnakara_Sangam
-Vishwakarma_Swarnakara_Sangamrates
+# Vishwakarma_Swarnakara_Sangam-rates
